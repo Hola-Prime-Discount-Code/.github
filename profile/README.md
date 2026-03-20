@@ -1,6 +1,6 @@
-# Hola Prime Discount Code INVEST 2026 – 15% OFF All Challenges
+# Hola Prime Discount Code INVEST 2026 – 20% OFF All Challenges
 
-If you are looking for the best Hola Prime discount code in 2026, you have found it. Use code **INVEST** and instantly save 15% on any Hola Prime challenge or Direct Account.
+If you are looking for the best Hola Prime discount code in 2026, you have found it. Use code **INVEST** and instantly save 20% on any Hola Prime challenge or Direct Account.
 
 ---
 
@@ -18,7 +18,7 @@ Traders can choose from five account types — two One-Step evaluations, two Two
 
 Using the Hola Prime discount code is simple. Head to the Hola Prime website via the link below, choose your preferred challenge type and account size, and proceed to checkout.
 
-You will find a field to enter a discount or promo code. Type **INVEST**, hit apply, and your total will drop by 15% instantly.
+You will find a field to enter a discount or promo code. Type **INVEST**, hit apply, and your total will drop by 20% instantly.
 
 No email sign-up, no surveys, no extra steps. A clean, instant saving available to traders worldwide.
 
@@ -29,7 +29,7 @@ No email sign-up, no surveys, no extra steps. A clean, instant saving available 
 Not all discount codes deliver real value — some are outdated, region-locked, or barely worth the effort. The code **INVEST** stands out because:
 
 - It is verified and working as of 2026
-- It delivers **15% OFF** — a meaningful saving on any Hola Prime challenge or Direct Account
+- It delivers **20% OFF** — a meaningful saving on any Hola Prime challenge or Direct Account
 - It applies to all account types: Pro 1-Step, Pro 2-Step, Prime 1-Step, Prime 2-Step, and Direct Account
 - It works globally across all 175+ supported countries
 - No referral or third-party sign-up required
@@ -65,7 +65,7 @@ Hola Prime has rapidly built one of the strongest reputations in the prop tradin
 
 ## 🔓 Reduce Your Startup Cost with INVEST
 
-Hola Prime challenge fees start from just $48 for a $5,000 Pro Two-Step evaluation — already among the most competitive in the industry. With the discount code **INVEST**, you cut that cost by a further 15%, making it even easier to get started with one of the fastest-paying, most transparent prop firms operating in 2026.
+Hola Prime challenge fees start from just $48 for a $5,000 Pro Two-Step evaluation — already among the most competitive in the industry. With the discount code **INVEST**, you cut that cost by a further 20%, making it even easier to get started with one of the fastest-paying, most transparent prop firms operating in 2026.
 
 Lower upfront cost means less financial pressure, a clearer head, and more focus on trading your strategy with precision.
 
@@ -87,7 +87,7 @@ Lower upfront cost means less financial pressure, a clearer head, and more focus
 | Field | Details |
 |-------|---------|
 | Active Code | **INVEST** |
-| Discount | **15% OFF** |
+| Discount | **20% OFF** |
 | Valid for | All challenge types and account sizes |
 | Status | ✅ Verified & Working 2026 |
 
@@ -95,4 +95,4 @@ Lower upfront cost means less financial pressure, a clearer head, and more focus
 
 👉 Head to [Hola Prime](https://trader.holaprime.com/en/challenges?affiliateId=we), choose your challenge, and use code **INVEST** at checkout.
 
-Start your funded trading journey today — and save 15% while you're at it: [https://trader.holaprime.com/en/challenges?affiliateId=we](https://trader.holaprime.com/en/challenges?affiliateId=we)
+Start your funded trading journey today — and save 20% while you're at it: [https://trader.holaprime.com/en/challenges?affiliateId=we](https://trader.holaprime.com/en/challenges?affiliateId=we)
